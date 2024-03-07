@@ -1,1 +1,1 @@
-# tether-usdt-awarrds.github.io
+# vips
